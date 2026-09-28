@@ -1,0 +1,2 @@
+# premium-dovetail-timber-001-timber-dovetail-joint-layout
+Stop losing your dovetail layouts in a pile of scrap paper and forgotten measurements. The Timber Dovetail Joint &amp; Layout Craft Hub turns your scattered ideas into a structured, repeatable system.  This Notion template eliminates the chaos of traditional woodworking organization by giving you a single source of truth for every joint layout, materia
